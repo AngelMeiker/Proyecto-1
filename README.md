@@ -1,1 +1,3 @@
+HH 卍
 En una galaxia muy muy lejana...
+1 ganador, 41 perdedores. Yo me meriendo a los perdedores
